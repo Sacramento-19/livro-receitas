@@ -7,7 +7,8 @@
  - 2 latas de creme de leite sem soro
  - 2 colheres de sopa de ketchup
  - 2 colheres de sopa de mostarda
+ - champignon
  - Bata palha arroz branco para acompanhar
- - molho (a gosto)
+
 
 ### Modo de Preparo
