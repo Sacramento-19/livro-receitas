@@ -12,3 +12,4 @@
 
 
 ### Modo de Preparo
+ - Em uma panela com fogo baixo coloque o tablete de caldo de galinha e o peito de frango cortado em cubos.
