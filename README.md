@@ -2,5 +2,6 @@
 
 Este será o livro de receitas !!
 
- - Strogonof
-
+ - Strogonoff
+ - Pavê
+ - Bolo de Cenoura
